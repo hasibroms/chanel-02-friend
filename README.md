@@ -1,1 +1,3 @@
-# chanel-02-friend
+# RIO_Bypass-MD
+
+Bybass Pair - https://asitha.top/pair
